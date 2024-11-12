@@ -1,9 +1,0 @@
-.DS_Store
-.dart_tool/
-
-.packages
-.idea
-.pub/
-
-build/
-example/lib/main2.dart

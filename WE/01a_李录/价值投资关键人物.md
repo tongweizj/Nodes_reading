@@ -1,0 +1,15 @@
+# 李录
+
+
+
+[生平](https://zh.wikipedia.org/wiki/%E6%9D%8E%E9%8C%84)
+
+[官方资料](https://www.himalayacapital.com/cn/publications)
+
+
+
+
+
+## 价值投资的知行合一
+
+https://mp.weixin.qq.com/s/WT-a2HefRuhrijdyp0MxDg
